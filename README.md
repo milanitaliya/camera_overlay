@@ -1,3 +1,3 @@
 # Camera Overlay
 
-See more about this project on email me on imitaliya@gmail.com
+Email me for more about this project imitaliya@gmail.com
